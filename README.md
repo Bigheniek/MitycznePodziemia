@@ -1,2 +1,3 @@
 # MitycznePodziemia
-Witaj drogi urzytkowniku
+                                                  Witaj drogi urzytkowniku
+Zapraszamy na dc:https://discord.gg/shUzbXRZvN
