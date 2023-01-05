@@ -24,7 +24,7 @@ Banan,
 Delptor
 
 Realizatorzy partnerstw:
-Banan, 
+Banan,! ABlmfaoAB,Dusejaja
 
 Plany nad rozbudową servera:
 
