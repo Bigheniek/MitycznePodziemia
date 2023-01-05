@@ -26,3 +26,6 @@ Delptor
 Realizatorzy partnerstw:
 Banan, 
 
+Plany nad rozbudową servera:
+Planujemy zrobić własną grę na roblox
+
