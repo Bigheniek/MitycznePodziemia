@@ -1,8 +1,8 @@
 # Mityczne Podziemia
                                                   Witaj drogi urzytkowniku
+
+
 Zapraszamy na dc:https://discord.gg/shUzbXRZvN
-
-
 
 
 Informację! 
@@ -27,5 +27,6 @@ Realizatorzy partnerstw:
 Banan, 
 
 Plany nad rozbudową servera:
+
 Planujemy zrobić własną grę na roblox
 
