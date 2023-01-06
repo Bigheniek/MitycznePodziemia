@@ -1,8 +1,10 @@
 # Mityczne Podziemia
                                                   Witaj drogi urzytkowniku
+                                                  
+                                                  
+![magical-path-david-resnikoff](https://user-images.githubusercontent.com/121927284/211089133-580ae150-363e-40f1-9d63-420206bce220.jpg)
 
-
-Zapraszamy na dc:https://discord.gg/shUzbXRZvN
+ℤ𝕒𝕡𝕣𝕒𝕤𝕫𝕒𝕞𝕪 𝕟𝕒 𝕕𝕔:https://discord.gg/shUzbXRZvN
 
 
 Informację! 
