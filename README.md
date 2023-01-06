@@ -1,5 +1,5 @@
-# Mityczne Podziemia
-                                                  Witaj drogi urzytkowniku
+
+                                                  Witaj drogi urzytkowniku na naszej stronie!
                                                   
                                                   
 ![magical-path-david-resnikoff](https://user-images.githubusercontent.com/121927284/211089133-580ae150-363e-40f1-9d63-420206bce220.jpg)
