@@ -7,7 +7,7 @@ Zapraszamy na dc:https://discord.gg/shUzbXRZvN
 
 Informację! 
 
-Server minecraft startuje 02.06.23r.
+Server minecraft startuje 01.30.23r.
 
 Ownerzy: 
 Bigheniek, 
@@ -28,5 +28,6 @@ Banan,! ABlmfaoAB,Dusejaja
 
 Plany nad rozbudową servera:
 
-Planujemy zrobić własną grę na roblox
+Planujemy zrobić własną grę na roblox,
+Wiecej konkursów
 
