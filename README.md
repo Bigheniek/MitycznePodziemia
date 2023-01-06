@@ -35,5 +35,10 @@ Wiecej konkursów
 
 
 
+Obraz wzjęty od Aikamatkustajan blogi
+blogspot.comblogspot.com
+
+
+
 Jak masz jakiś problem to napisz na dc do ! Bigheniek#7064 lub Legendarny Banan
 #5044
