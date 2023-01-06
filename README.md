@@ -33,12 +33,9 @@ Plany nad rozbudową servera:
 Planujemy zrobić własną grę na roblox,
 Wiecej konkursów
 
-
+Jak masz jakiś problem to napisz na dc do ! Bigheniek#7064 lub Legendarny Banan
+#5044
 
 Obraz wzjęty od Aikamatkustajan blogi
 blogspot.comblogspot.com
 
-
-
-Jak masz jakiś problem to napisz na dc do ! Bigheniek#7064 lub Legendarny Banan
-#5044
